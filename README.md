@@ -9,3 +9,5 @@
 IDK HOW THIS WORKS
 
 <img width="624" height="600" alt="image" src="https://github.com/user-attachments/assets/d263f534-13d8-439e-b3fb-57f96f9c2f2b" />
+
+NEED TO UPDATE THIS BUT I'LL DO THAT LATR
