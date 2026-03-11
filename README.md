@@ -13,6 +13,6 @@ CURRENT INTERESTS: CREEPYPASTA + SLENDERVERSE, UNDERTALE + AUS , POSTAL, HOMESTU
 IF YOU ENJOY ANY OF MY INTERESTS PLEASE INT
 
 
-<img width="624" height="600" alt="image" src="https://github.com/user-attachments/assets/d263f534-13d8-439e-b3fb-57f96f9c2f2b" />
+<img width="624" height="600" alt="image" src="https://i.postimg.cc/T3RwTHxp/gods.png" />
 
 NEED TO UPDATE THIS BUT I'LL DO THAT LATR
