@@ -8,6 +8,10 @@ IDK HOW THIS WORKS
 </p>
 
 <p align="center">
+Sometimes in safe server and mostly on 18+ one.
+</p>
+
+<p align="center">
 CURRENT INTERESTS: CREEPYPASTA + SLENDERVERSE, UNDERTALE + AUS , POSTAL, HOMESTUCK, RESIDENT EVIL
 </p>
 
