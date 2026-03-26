@@ -4,10 +4,6 @@
 </p>
 
 <p align="center">
-Anti harassment
-</p>
-
-<p align="center">
 Sometimes in safe server and mostly on 18+ one.
 </p>
 
