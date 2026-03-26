@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-IDK HOW THIS WORKS
+Anti harassment
 </p>
 
 <p align="center">
