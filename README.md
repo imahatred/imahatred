@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-Sometimes in safe server and mostly on 18+ one.
+Sometimes in safe server and 18+.
 </p>
 
 <p align="center">
