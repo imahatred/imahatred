@@ -1,4 +1,3 @@
- ###                   __GOREHOUND__ 𓄧
 <div align="center">
  
    ![](https://komarev.com/ghpvc/?username=imahatred&label=Page+Views&color=FF0000) 
