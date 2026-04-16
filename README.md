@@ -1,6 +1,8 @@
  ###                   __GOREHOUND__ 𓄧
 <p align="center">
-   
+ 
+   ![](https://komarev.com/ghpvc/?username=imahatred&label=Page+Views&color=FF0000) 
+
 </p>
 
 <p align="center">
