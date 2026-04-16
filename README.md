@@ -1,24 +1,23 @@
  ###                   __GOREHOUND__ 𓄧
-<p align="center">
+<div align="center">
  
    ![](https://komarev.com/ghpvc/?username=imahatred&label=Page+Views&color=FF0000) 
 
-</p>
 
-<p align="center">
 Safe server and 18+.
-</p>
 
-<p align="center">
-CURRENT INTERESTS: P͟o͟s͟t͟a͟l͟, Metalocalypse, Resident evil, TF2, Creepypasta + Slenderverse, Ultrakill.
-</p>
+[Ata](https://imahatred.atabook.org) . Rentry(wip)
 
-<p align="center">
+
+CURRENT INTERESTS: *P͟o͟s͟t͟a͟l͟*, Metalocalypse, Resident evil, TF2, Creepypasta + Slenderverse, *Ultrakill*.
+
+
+
 If you enjoy any of those please int.
-</p>
+</div>
 
 <p align="center">
-ᴰᴺᴵ⠃ ᴿᵃᵈᵠᵘᵉᵉʳˢᐟᵈᵃʳᵏˢʰⁱᵖᵖᵉʳˢ· ᴵ'ᵐ ᵃ͟ⁿ͟ᵗ͟ⁱ͟⁻͟ᶜ͟ᵉ͟ⁿ͟ˢ͟ᵒ͟ʳ͟ˢ͟ʰ͟ⁱ͟ᵖ͟ ᵇᵘᵗ ⁱ'ᵐ ⁱᶠᶠʸ ʷⁱᵗʰ ᵗʰᵉ ᵐᵃʲᵒʳⁱᵗʸ ᵒᶠ ᵗʰᵒˢᵉ·
+<sup>DNI: Radqueers/darkshippers. I am anti-censorship but very iffy with the majority of those, due to past situations.</sup>
 </p>
 
 <p align="center">
