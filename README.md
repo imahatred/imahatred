@@ -3,12 +3,12 @@
    ![](https://komarev.com/ghpvc/?username=imahatred&label=Page+Views&color=FF0000) 
 
 
-Safe server and 18+.
+<br> ${\textsf{\color{#FF0000}Safe server and 18+.}}$
 
 [Ata](https://imahatred.atabook.org) . [Rentry](https://rentry.co/corpse-grindin-man)
 
 
-CURRENT INTERESTS: *P͟o͟s͟t͟a͟l͟*, Metalocalypse, Resident evil, *TF2*, Creepypasta + Slenderverse, *Ultrakill*.
+CURRENT INTERESTS: <br> ${\textsf{\color{#FF0000}P͟o͟s͟t͟a͟l͟}}$, Metalocalypse, Resident evil, *TF2*, Creepypasta + Slenderverse, *Ultrakill*.
 
 
 
