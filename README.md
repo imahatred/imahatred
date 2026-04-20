@@ -37,7 +37,6 @@ If you enjoy any of those please int.
 <img width="101" height="57" alt="tumblr_0e814c824983503d534255bff5f6258f_5c84dbdc_250" src="https://github.com/user-attachments/assets/7429d79c-d0dc-48c8-8f44-3434120932f4" />
 <img width="150" height="20" alt="tumblr_3202dadc71198983fdb958372fb64616_220ab9d6_250" src="https://github.com/user-attachments/assets/52a90cd2-3681-41ae-8dab-e39058e7d7cb" />
 <img width="248" height="98" alt="tumblr_9ccaa6f878f4f9d2175c61f8f06d7ce2_0a9fae21_1280" src="https://github.com/user-attachments/assets/586ac5bd-d8d4-4eae-94d4-015ef879a8be" />
-<img width="248" height="98" alt="tumblr_010b7676f60c5bcc017e1a5cc2a7a7a1_8d372b52_2048" src="https://github.com/user-attachments/assets/e96bc5a4-0574-4219-8b0d-4f25579abb83" />
 </details>
 </div>
 
