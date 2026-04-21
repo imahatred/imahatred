@@ -8,7 +8,7 @@
 [Ata](https://imahatred.atabook.org) . [Rentry](https://rentry.co/corpse-grindin-man)
 
 
-CURRENT INTERESTS: <br> ${\textsf{\color{#FF0000}P͟o͟s͟t͟a͟l͟}}$, Metalocalypse, Resident evil, *TF2*, Creepypasta + Slenderverse, *Ultrakill*.
+CURRENT INTERESTS: <br> ${\textsf{\color{#FF0000}P͟o͟s͟t͟a͟l͟}}$, Metalocalypse, Resident evil, *TF2*, Creepypasta + Slenderverse, ${\textsf{\color{#FF0000}Ultrakill}}$.
 
 
 
