@@ -16,7 +16,7 @@ If you enjoy any of those please int.
 </div>
 
 <p align="center">
-<sup>DNI: Radqueers/darkshippers. I am anti-censorship but very iffy with the majority of those, due to past situations.</sup>
+<sup>DNI: Radqueers/xenosatanists. I am anti-censorship but very iffy with the majority of those, due to past situations.</sup>
 </p>
 
 <p align="center">
