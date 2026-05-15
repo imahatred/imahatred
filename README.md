@@ -1,3 +1,8 @@
+<div align="center"> 
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com/?color=ff2c2c&size=20&lines=Cassie+likes+it+in+her+hand,;Cassie's+dead+inside.)](https://git.io/typing-svg)
+</div>
+
 <div align="center">
  
    ![](https://komarev.com/ghpvc/?username=imahatred&label=Page+Views&color=FF0000) 
