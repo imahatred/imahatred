@@ -13,7 +13,7 @@
 [Ata](https://imahatred.atabook.org) . [Rentry](https://rentry.co/corpse-grindin-man)
 
 
-CURRENT INTERESTS: <br> ${\textsf{\color{#FF0000}P͟o͟s͟t͟a͟l͟}}$, Metalocalypse, Judge Holden, Horror movies, Resident evil, *TF2*, Creepypasta + Slenderverse, ${\textsf{\color{#FF0000}Ultrakill}}$.
+CURRENT INTERESTS: <br> ${\textsf{\color{#FF0000}P͟o͟s͟t͟a͟l͟}}$, Metalocalypse, Blood Meridian, Horror movies, Resident evil, *TF2*, Creepypasta + Slenderverse, ${\textsf{\color{#FF0000}Ultrakill}}$.
 
 
 
@@ -21,7 +21,7 @@ If you enjoy any of those please int.
 </div>
 
 <p align="center">
-<sup>DNI: Radqueers/xenosatanists. I am anti-censorship but very iffy with the majority of those, due to past situations.</sup>
+<sup>DNI: Radqueers/xenosatanists.</sup>
 </p>
 
 <p align="center">
