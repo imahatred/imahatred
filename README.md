@@ -10,7 +10,7 @@
 
 <br> ${\textsf{\color{#FF0000}Safe server.}}$
 
-[Ata](https://imahatred.atabook.org) . [Rentry](https://rentry.co/corpse-grindin-man)
+[Ata](https://imahatred.atabook.org) . [Rentry](https://rentry.co/nailcollection)
 
 
 CURRENT INTERESTS: <br> ${\textsf{\color{#FF0000}P͟o͟s͟t͟a͟l͟}}$, Metalocalypse, Blood Meridian, Horror movies, Resident evil, *TF2*, Creepypasta + Slenderverse, ${\textsf{\color{#FF0000}Ultrakill}}$.
